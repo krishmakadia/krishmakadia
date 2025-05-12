@@ -5,7 +5,7 @@
 
 - 📫 reach me at **krishmakadia2004@gmail.com**
 
-- 📄 Professional Development [https://drive.google.com/file/d/1Qp__tcuCxDvYFr3FjtIt-i_jBRYtePKw/view?usp=drivesdk](https://drive.google.com/file/d/1Qp__tcuCxDvYFr3FjtIt-i_jBRYtePKw/view?usp=drivesdk)
+- 📄 Professional Development [https://drive.google.com/file/d/1ds4HemK-eYfgNqAvQx9B48DfvVMpaluc/view?usp=drive_link](https://drive.google.com/file/d/1ds4HemK-eYfgNqAvQx9B48DfvVMpaluc/view?usp=drive_link)
 
 - ⚡ Fun fact **I’ve got more IMDb tabs open than Stack Overflow ones.**
 
